@@ -1,4 +1,4 @@
-# INDIA'S-AGRICULTURAL-SECTORSCALABLE-CLIMATE-RESILIENCE-SOLUTIONS
+
 India’s Agricultural Sector – Scalable Climate Resilience Solutions
 
 Course: BANL 6614.09 | Fall 2024
